@@ -1,1 +1,1 @@
-My first readme
+I have the mind of Christ.
